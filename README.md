@@ -12,3 +12,8 @@
 
 # dependency 
 - A brain
+
+
+I just saw people sell this for money so i decided to release one for free, you can donate to support me if you would like.
+
+- https://ko-fi.com/annalouu
